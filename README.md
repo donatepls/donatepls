@@ -3,5 +3,5 @@
 ##
 
 - 👯 I'm constantly in search of new talent
-- ⚡ Contact me at beogy@pvpclash.net
+- ⚡ Contact me at donatepls@pvpclash.net
 - 🏢 Always open for new projects
