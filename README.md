@@ -3,5 +3,5 @@
 ##
 
 - 👯 I'm constantly in search of new talent
-- ⚡ Contact me at donatepls@pvpclash.net
+- ⚡ Contact me at donatepls@influct.org
 - 🏢 Always open for new projects
